@@ -35,7 +35,7 @@ I am passionate about transforming complex data into clear, impactful insights t
 ---
 
 ### 📫 Connect with Me
-- 🌐 [LinkedIn](www.linkedin.com/in/luyanda-mkhize-596409163)  
+- 🌐 [LinkedIn](https://www.linkedin.com/in/luyanda-mkhize-596409163)  
 - 📧 Email: luyandalmkhize07@gmail.com
 
 ---
