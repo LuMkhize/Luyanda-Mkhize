@@ -24,13 +24,6 @@ I am passionate about transforming complex data into clear, impactful insights t
 
 ---
 
-### 📁 Sample Projects
-
-
-> 👉 More projects coming soon — I’m continuously building my portfolio.
-
----
-
 ### 📫 Connect with Me
 - 🌐 [LinkedIn](https://www.linkedin.com/in/luyanda-mkhize-596409163)  
 - 📧 Email: luyandalmkhize07@gmail.com
